@@ -2,5 +2,5 @@
 
 La référence de recherche d’espace de coworking par excellence.
 
-Vidéo démonstration : bit.ly/3SRYsIC
+Vidéo démonstration : https://bit.ly/3SRYsIC
 
